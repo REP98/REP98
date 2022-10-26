@@ -1,1 +1,1 @@
-Hola, :metal: Soy desarrollador Full Stack, Emprendedor, Creativo y Visionario. 
+Hola, :metal: Soy desarrollador Full Stack, Emprendedor, Creativo y Visionario. mi Slogan es Rápido, Eficaz y Profesional, estoy en el área desde el 2010, y los estare hasta que pueda ver. maneja multiples lenguajes de programación y sueño con un mundo Open Source
